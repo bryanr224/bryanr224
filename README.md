@@ -1,4 +1,4 @@
-### I'm Bryan Rodriguez-Pena 
+### I'm Bryan, I am an Electrical Engineering major at Washington State University
 
 
 <!--
